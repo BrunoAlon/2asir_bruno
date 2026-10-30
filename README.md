@@ -1,1 +1,1 @@
-# 2asir_bruno
+este repositorio es de bruno alonso
